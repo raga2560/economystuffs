@@ -41,6 +41,8 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 
 [Universal basic income](http://www.dukechronicle.com/article/2017/02/the-case-for-a-ubi)
 
+[Identity and authority](https://hackernoon.com/identity-without-authority-a-decentralized-id-system-for-the-whole-world-bf9aad1a096b)
+
 
 # Interesting Authors/Books
 [Daniel Jeffries ](https://www.patreon.com/danjeffries)
