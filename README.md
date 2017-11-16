@@ -23,3 +23,7 @@
 
 For all questions of economy refer(https://medium.com/@rameshbn)
 
+# External references
+
+[Gamifying money delivery](https://hackernoon.com/gamifying-the-delivery-of-money-c55c25cecaee)
+
