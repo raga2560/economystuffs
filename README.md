@@ -39,9 +39,12 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 
 [Law of accelerating returns](http://www.kurzweilai.net/the-law-of-accelerating-returns)
 
-# Interestings Authors
-[Daniel Jeffries ](https://www.patreon.com/danjeffries)
+[Universal basic income](http://www.dukechronicle.com/article/2017/02/the-case-for-a-ubi)
 
+
+# Interesting Authors/Books
+[Daniel Jeffries ](https://www.patreon.com/danjeffries)
+[Fractional reserve lending](http://amzn.to/2vbgFZ5)
 
 
 
