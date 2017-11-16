@@ -47,6 +47,7 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 # Interesting Authors/Books
 [Daniel Jeffries ](https://www.patreon.com/danjeffries)
 [Fractional reserve lending](http://amzn.to/2vbgFZ5)
+[Collapse of complex societies](https://www.amazon.com/Collapse-Complex-Societies-Studies-Archaeology/dp/052138673X)
 
 
 
