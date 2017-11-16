@@ -35,9 +35,11 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 
 [Double entry, tripple entry accounting](https://hackernoon.com/why-everyone-missed-the-most-important-invention-in-the-last-500-years-c90b0151c169)
 
+[Best blockchain tweets](https://hackernoon.com/reflections-on-the-best-blockchain-tweets-ever-written-d488af960d4f)
+
 # Interestings Authors
 [Daniel Jeffries ](https://www.patreon.com/danjeffries)
 
-[Best blockchain tweets](https://hackernoon.com/reflections-on-the-best-blockchain-tweets-ever-written-d488af960d4f)
+
 
 
