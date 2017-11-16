@@ -37,6 +37,8 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 
 [Best blockchain tweets](https://hackernoon.com/reflections-on-the-best-blockchain-tweets-ever-written-d488af960d4f)
 
+[Law of accelerating returns](http://www.kurzweilai.net/the-law-of-accelerating-returns)
+
 # Interestings Authors
 [Daniel Jeffries ](https://www.patreon.com/danjeffries)
 
