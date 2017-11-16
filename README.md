@@ -27,3 +27,14 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 
 [Gamifying money delivery](https://hackernoon.com/gamifying-the-delivery-of-money-c55c25cecaee)
 
+[Missed mind blowing features of crypto](https://hackernoon.com/why-everyone-missed-the-most-mind-blowing-feature-of-cryptocurrency-860c3f25f1fb)
+
+[History of Money](https://www.amazon.com/Ascent-Money-Financial-History-World/dp/0143116177)
+
+[Introduced copper coins](https://en.wikipedia.org/wiki/Qin_Shi_Huang)
+
+[Double entry, tripple entry accounting](https://hackernoon.com/why-everyone-missed-the-most-important-invention-in-the-last-500-years-c90b0151c169)
+
+[Best blockchain tweets](https://hackernoon.com/reflections-on-the-best-blockchain-tweets-ever-written-d488af960d4f)
+
+
