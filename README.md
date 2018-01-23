@@ -18,6 +18,8 @@
 
 [Real money and Virtual money](https://medium.com/@rameshbn/real-money-and-virtual-money-93b29e503755)
 
+[Banking money in computer engineers language](https://medium.com/@rameshbn/explaining-banking-and-money-in-computer-engineers-language-4426229bbc38)
+
 
 
 
