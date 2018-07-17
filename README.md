@@ -20,6 +20,8 @@
 
 [Banking money in computer engineers language](https://medium.com/@rameshbn/explaining-banking-and-money-in-computer-engineers-language-4426229bbc38)
 
+[How economy expands bitcoin perspective](https://www.linkedin.com/pulse/explanation-how-economy-expands-from-bitcoin-perspective-ramesh-bn)
+
 
 
 
