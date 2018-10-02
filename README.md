@@ -28,7 +28,7 @@
 For all questions of economy refer(https://medium.com/@rameshbn)
 
 # External references
-[Ethics of printing money] (https://drive.google.com/open?id=1jfF3R42cE2xgl1t3HvE9K_GvcbmZUYP7)
+[Ethics of printing money](https://drive.google.com/open?id=1jfF3R42cE2xgl1t3HvE9K_GvcbmZUYP7)
 
 [Gamifying money delivery](https://hackernoon.com/gamifying-the-delivery-of-money-c55c25cecaee)
 
