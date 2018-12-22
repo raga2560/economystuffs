@@ -22,7 +22,7 @@
 
 [How economy expands bitcoin perspective](https://www.linkedin.com/pulse/explanation-how-economy-expands-from-bitcoin-perspective-ramesh-bn)
 
-[Hurricane and market capitalization comparison] (https://medium.com/@rameshbn/the-hurricane-economics-for-startups-and-investors-275b3cc6e556)
+[Hurricanes and market capitalization comparison](https://medium.com/@rameshbn/the-hurricane-economics-for-startups-and-investors-275b3cc6e556)
 
 
 
