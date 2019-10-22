@@ -24,7 +24,7 @@
 
 [Hurricanes and market capitalization comparison](https://medium.com/@rameshbn/the-hurricane-economics-for-startups-and-investors-275b3cc6e556)
 
-[Civilised and Uncivilized in Economy](https://medium.com/@rameshbn/the-civilized-people-and-uncivilized-people-3d38984f2ef8)
+[Civilized and Uncivilized in Economy](https://medium.com/@rameshbn/the-civilized-people-and-uncivilized-people-3d38984f2ef8)
 
 
 
