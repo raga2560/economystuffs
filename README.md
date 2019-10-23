@@ -28,6 +28,8 @@
 
 [Good lawyer is bad lawyer, Bad lawyer is good lawyer](https://medium.com/@rameshbn/good-lawyer-is-bad-lawyer-bad-lawyer-is-good-lawyer-733104f18e99)
 
+[Lie is the foundation of modern economics](https://medium.com/@rameshbn/lie-is-the-foundation-of-modern-economics-dbfabfe62e6)
+
 
 For all questions of economy refer(https://medium.com/@rameshbn)
 
