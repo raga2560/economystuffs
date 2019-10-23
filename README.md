@@ -26,7 +26,7 @@
 
 [Civilized and Uncivilized in Economy](https://medium.com/@rameshbn/the-civilized-people-and-uncivilized-people-3d38984f2ef8)
 
-
+[Good lawyer is bad lawyer, Bad lawyer is good lawyer](https://medium.com/@rameshbn/good-lawyer-is-bad-lawyer-bad-lawyer-is-good-lawyer-733104f18e99)
 
 
 For all questions of economy refer(https://medium.com/@rameshbn)
