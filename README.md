@@ -34,6 +34,13 @@
 For all questions of economy refer(https://medium.com/@rameshbn)
 
 # External references
+
+[2009 USA economy size for reference](https://upload.wikimedia.org/wikipedia/commons/thumb/d/de/The_Great_Asset_Bubble.svg/250px-The_Great_Asset_Bubble.svg.png)
+
+[Amazon, Jeff Bezos to bail out USA](https://blockchainbusinessmagazine.com/future-predictions-that-time-jeff-bezos-bailed-out-america/)
+- In 1883 JP Morgan, the guy, not yet the bank as we know it today, bailed out the US economy. 
+- Again, in 1907, JP Morgan doubled down and bailed out the US once again. 
+
 [Ethics of printing money](https://drive.google.com/open?id=1jfF3R42cE2xgl1t3HvE9K_GvcbmZUYP7)
 
 [Gamifying money delivery](https://hackernoon.com/gamifying-the-delivery-of-money-c55c25cecaee)
