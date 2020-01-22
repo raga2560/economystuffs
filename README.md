@@ -54,7 +54,7 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 
 [Identity and authority](https://hackernoon.com/identity-without-authority-a-decentralized-id-system-for-the-whole-world-bf9aad1a096b)
 
-[First Venture Captalists](https://electricsheep.substack.com/p/the-first-venture-capitalists)
+[First Venture Capitalists](https://electricsheep.substack.com/p/the-first-venture-capitalists)
 
 
 # Interesting Authors/Books
