@@ -35,6 +35,8 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 
 # External references
 
+[2009 USA economy size for reference](https://en.wikipedia.org/wiki/Great_Recession)
+
 ![2009 USA economy size for reference](https://upload.wikimedia.org/wikipedia/commons/thumb/d/de/The_Great_Asset_Bubble.svg/250px-The_Great_Asset_Bubble.svg.png)
 
 [Amazon, Jeff Bezos to bail out USA](https://blockchainbusinessmagazine.com/future-predictions-that-time-jeff-bezos-bailed-out-america/)
