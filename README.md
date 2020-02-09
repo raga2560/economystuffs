@@ -32,7 +32,7 @@
 
 [Education in world ](https://www.linkedin.com/posts/ramesh-bn-09b26629_education-in-usa-and-india-activity-6632149090761310208-15cJ)
 
-![Education in world](https://media-exp1.licdn.com/dms/image/C5122AQE7EMFxmvrOyQ/feedshare-shrink_1280/0?e=1583971200&v=beta&t=loVuMFYoPGeqEtgRy7LbF2oIm3RE8S5WYeP7CaRgPoo)
+![Education in world](https://media-exp1.licdn.com/dms/image/C5122AQE7EMFxmvrOyQ/feedshare-shrink_1280/0?e=1583971200&v=beta&t=loVuMFYoPGeqEtgRy7LbF2oIm3RE8S5WYeP7CaRgPoo =100x80)
 
 
 
