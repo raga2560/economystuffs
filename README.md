@@ -78,7 +78,7 @@ For all questions of economy refer(https://medium.com/@rameshbn)
 
 [Collapse of complex societies](https://www.amazon.com/Collapse-Complex-Societies-Studies-Archaeology/dp/052138673X)
 
+# Related
+[Perception of value](https://medium.com/@rameshbn/valued-perspective-and-devalued-perspective-of-life-2f2c815de978)
 
-
-
-
+[Green economy to explosive economy](https://www.linkedin.com/pulse/from-green-economy-explosive-ramesh-bn/)
