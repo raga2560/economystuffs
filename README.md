@@ -1,8 +1,5 @@
 # Theory behind economy stuffs
 
-[![IMAGE ALT TEXT](http://img.youtube.com/vi/h2Ac4DCEcTk/0.jpg)](https://youtu.be/h2Ac4DCEcTk "Non traditional strategies for success management")
-
-[Non traditional strategies for success management, a video ](https://youtu.be/h2Ac4DCEcTk)
 
 [Charging india](https://medium.com/p/charging-india-c319ceed74f4)
 
@@ -38,7 +35,7 @@
 
 ![Education in world](https://media-exp1.licdn.com/dms/image/C5122AQE7EMFxmvrOyQ/feedshare-shrink_1280/0?e=1583971200&v=beta&t=loVuMFYoPGeqEtgRy7LbF2oIm3RE8S5WYeP7CaRgPoo)
 
-
+[![IMAGE ALT TEXT](http://img.youtube.com/vi/h2Ac4DCEcTk/0.jpg)](https://youtu.be/h2Ac4DCEcTk "Non traditional strategies for success management")
 
 For all questions of economy refer(https://medium.com/@rameshbn)
 
