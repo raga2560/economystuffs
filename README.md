@@ -1,5 +1,7 @@
 # Theory behind economy stuffs
 
+[![IMAGE ALT TEXT](http://img.youtube.com/vi/h2Ac4DCEcTk/0.jpg)](https://youtu.be/h2Ac4DCEcTk "Non traditional strategies for success management")
+
 [Non traditional strategies for success management, a video ](https://youtu.be/h2Ac4DCEcTk)
 
 [Charging india](https://medium.com/p/charging-india-c319ceed74f4)
