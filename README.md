@@ -1,5 +1,7 @@
 # Theory behind economy stuffs
 
+[Non traditional strategies for success management, a video ](https://youtu.be/h2Ac4DCEcTk)
+
 [Charging india](https://medium.com/p/charging-india-c319ceed74f4)
 
 [Active and Passive economy](https://medium.com/p/active-and-passive-economy-differences-9be9b1bd1a15)
