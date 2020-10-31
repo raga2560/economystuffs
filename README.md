@@ -33,7 +33,7 @@
 
 [Two ends of economics](https://medium.com/@rameshbn/two-ends-of-economics-7ff1ef1decfa)
 
-[Atapi, Vatapi economics](https://medium.com/@rameshbn/atapi-vatapi-economics-bcf438308858)]
+[Atapi, Vatapi economics](https://medium.com/@rameshbn/atapi-vatapi-economics-bcf438308858)
 
 [Cock fight legal system of world ](https://rameshbn.medium.com/cock-fight-legal-system-of-the-world-819658b72cea)
 
